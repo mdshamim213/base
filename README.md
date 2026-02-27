@@ -17,3 +17,4 @@ my life my rules
 osama bin 1240
 face the truth
 12king
+do your own work
